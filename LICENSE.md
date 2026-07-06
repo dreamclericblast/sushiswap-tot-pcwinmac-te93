@@ -1,4 +1,4 @@
-# 
+# Premium sushiswap trading bot modelos for Mac OS | Ultimato sushiswap trading bot modelos for PC Windows. Featuring API de exchange descentralizada and estratégia de reversão à média — optimized for maximum performance.
 
 
 
